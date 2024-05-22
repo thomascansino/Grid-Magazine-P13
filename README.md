@@ -1,1 +1,1 @@
-# Grid-Magazine-P13
+# Grid-Magazine-13th-Project
